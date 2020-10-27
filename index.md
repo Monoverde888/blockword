@@ -1,0 +1,13 @@
+## Palabras bloqueadas en el servidor 𝕃𝕒 𝕔𝕙𝕠𝕫𝕒 𝕕𝕖 𝔻𝕠𝕟𝕎𝕖𝕒 🎃
+ - :v
+ - >:v
+ - ;v
+ - :u
+ - 👁️👄👁️
+ - \👁️\👄\👁️
+ - vagina
+ - polla
+ - anal
+ - follar
+ - oral
+ - pene
